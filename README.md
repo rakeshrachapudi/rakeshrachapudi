@@ -20,7 +20,7 @@
 
 - 📫 How to reach me **rakeshrachapudi04@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/19RaCdDrSaKeWKggl_81C-AVUQhh4xlUi/view([https://drive.google.com/file/d/19RaCdDrSaKeWKggl_81C-AVUQhh4xlUi/view](https://drive.google.com/file/d/19RaCdDrSaKeWKggl_81C-AVUQhh4xlUi/view))
+- 📄 Know about my experiences ([https://drive.google.com/file/d/19RaCdDrSaKeWKggl_81C-AVUQhh4xlUi/view](https://drive.google.com/file/d/19RaCdDrSaKeWKggl_81C-AVUQhh4xlUi/view))
 
 - ⚡ Fun fact **Guess I'm not as Funny as You**
 
