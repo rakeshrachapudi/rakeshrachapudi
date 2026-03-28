@@ -10,7 +10,7 @@
 
 - 🔭 I’m currently working on **Web Development**
 
-- 🌱 I’m currently learning **React and Tailwind CSS**
+- 🌱 I’m currently learning **Frontend React and DevOps**
 
 - 👨‍💻 All of my projects are available at [rakeshrachapudi.onrender.com](rakeshrachapudi.onrender.com)
 
